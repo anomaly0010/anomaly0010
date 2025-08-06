@@ -1,3 +1,4 @@
-<img width="510" height="430" alt="GvTecceWgAAx3b8" src="https://github.com/user-attachments/assets/ff1ffcd9-7a47-4b0a-b391-2f582358c55d" />
+![GvS0xgnWEAArP9U](https://github.com/user-attachments/assets/94fd7185-4092-488e-902c-bd8c25ef3b16)
+
 
 *photo by onyri*
