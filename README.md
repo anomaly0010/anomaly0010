@@ -1,3 +1,3 @@
-![GwVWg4VXIAEzEIc](https://github.com/user-attachments/assets/abeeade1-c3d8-44fb-b6a8-c041cd368733)
+<img width="510" height="430" alt="GvTecceWgAAx3b8" src="https://github.com/user-attachments/assets/ff1ffcd9-7a47-4b0a-b391-2f582358c55d" />
 
-<img width="975" height="180" alt="0036458480_100" src="https://github.com/user-attachments/assets/bbf383d0-e372-425e-8831-671a6f81502c" />
+*photo by onyri*
