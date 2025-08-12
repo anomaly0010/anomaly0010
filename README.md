@@ -1,6 +1,1 @@
-<img width="807" height="593" alt="GvHlCTeXUAA5I4s" src="https://github.com/user-attachments/assets/c3f56c8b-0afc-4cd8-aac2-23386ae03cbf" />
-
-
-
-
-*photo by onyri*
+<img width="902" height="178" alt="Screenshot 2025-07-31 134923" src="https://github.com/user-attachments/assets/7928461d-4f31-4c79-8805-63abfd598e0b" />
